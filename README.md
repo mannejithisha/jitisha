@@ -1,3 +1,3 @@
-# jitisha
+# jithisha
 hi hello welcome
 
